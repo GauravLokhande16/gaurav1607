@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **lokhandeg570@gmail.com**
 
-- ⚡ Fun fact **"I love to eat Biryani 🍗"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
